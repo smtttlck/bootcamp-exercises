@@ -1,1 +1,0 @@
-### Projenin son hali bu değildir. Güncellenecek!
